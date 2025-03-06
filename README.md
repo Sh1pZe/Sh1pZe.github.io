@@ -1,1 +1,1 @@
-# Sh1pZe.github.io
+#Переходи: https://sh1pze.github.io/ 😉
